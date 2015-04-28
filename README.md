@@ -13,7 +13,7 @@ April 23th, 2015
 
 ---
 
-[Recording](
+[Recording](https://panopto.uw.edu/Panopto/Pages/Viewer.aspx?id=a2e2dffc-2305-40ee-a203-b61eb65ef672)
 
 
 ---
